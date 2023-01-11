@@ -1,4 +1,4 @@
-# Build and Deploy Your Own ChatGPT AI Application That Will Help You Code
-![Open AI CodeGPT](https://i.ibb.co/LS4DRhb/image-257.png)
+# nothing in here
+![nothing](https://cdn.vox-cdn.com/thumbor/YMSufyCKU52I79bwHh6MTogY1Fo=/1400x1050/filters:format(jpeg)/cdn.vox-cdn.com/uploads/chorus_asset/file/18366664/blink182_1999.jpg)
 
-### Launch your development career with project-based coaching - https://www.jsmastery.pro
+### nothing com
